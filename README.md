@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Methalix76
+- 👀 I’m interested in software developer and data base administrator
+- 🌱 I’m currently learning programins lenguaje

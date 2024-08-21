@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Methalix76
-- 👀 I’m interested in software developer and data base administrator
+- 👀 I’m interested in data base administrator and PMO TI.
 - 🌱 I’m currently learning programins lenguaje
